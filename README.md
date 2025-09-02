@@ -41,4 +41,3 @@ o	Vishwadipsinh Rana
 
 o	GitHub: (https://github.com/vishwadipsinh)
 
-o	Email: vishwadipsinh-666@yahoo.com
